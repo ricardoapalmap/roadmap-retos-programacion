@@ -1,0 +1,3 @@
+Mi Primer Readme 24-05-2024 19:57 Osorno-Chile.
+Vamos Carajo!!!!!!
+con todo o sino pa ke........
